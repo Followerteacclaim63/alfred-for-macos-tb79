@@ -1,4 +1,4 @@
-#  
+#  Alfred for macOS updated Utility - offline access and collaboration offers the most advanced Alfred for macOS utility, with offline access and collaboration. Ideal for
 
 
 
